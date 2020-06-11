@@ -50,3 +50,8 @@ NEW:
 ![alt text](/images/episode-0009/anita-tweet-1.png "Anita Graser Aankondiging")
 
 ![alt text](https://imgs.xkcd.com/comics/iso_8601.png "XKCD on ISO 8601")
+
+#### Hans' University
+
+* [YouTube Kanaal Geojuffie](https://www.youtube.com/channel/UCK-8xQf0cTHeJv5thJMBOYg) 
+
